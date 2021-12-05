@@ -2,7 +2,7 @@
 
 НАСТРОЙКА
 
-Видео 
+Видео инструкция
 
 https://yadi.sk/i/KUCpv7s0wHe9Rw 
 
