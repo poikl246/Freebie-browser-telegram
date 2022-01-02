@@ -6,8 +6,6 @@
 
 https://yadi.sk/i/KUCpv7s0wHe9Rw 
 
-Советую посмотреть еще вот этот проект https://github.com/poikl246/Screen_Telegram
-
 Для пользователей ПК win+tab - открытие вертуалтных рабочих столов
 
 1. Скачиваем Гугл хром
