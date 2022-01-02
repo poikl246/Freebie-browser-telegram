@@ -4,7 +4,7 @@
 
 Видео инструкция (СОВЕТУЮ ПОСМОТРЕТЬ, ТАК КАК ТУТ ВСЕ ПОНЯТНЕЕ И ЕСТЬ ЕЩЕ ВАРИАНТ ЗАПУСКА (лень расписывать))
 
-https://yadi.sk/i/KUCpv7s0wHe9Rw 
+https://drive.google.com/file/d/1_6Nr2IqZeuw2O2zBRxy6lV8ua8oCxy0Z/view?usp=sharing 
 
 Для пользователей ПК win+tab - открытие вертуалтных рабочих столов
 
