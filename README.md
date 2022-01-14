@@ -6,6 +6,8 @@
 
 https://drive.google.com/file/d/1_6Nr2IqZeuw2O2zBRxy6lV8ua8oCxy0Z/view?usp=sharing 
 
+СВЯТЬ С РАЗРАБОТЧИКОМ https://t.me/NikitaMosk (Телеграмм)
+
 Для пользователей ПК win+tab - открытие вертуалтных рабочих столов
 
 1. Скачиваем Гугл хром
