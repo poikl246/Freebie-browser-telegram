@@ -6,8 +6,7 @@
 
 https://drive.google.com/file/d/1_6Nr2IqZeuw2O2zBRxy6lV8ua8oCxy0Z/view?usp=sharing 
 
-Группа по решению вопросов с установкой и допиливанием. https://t.me/+PBA6cxhBQVc2ZmNi
-![gEmhnQ8UuYw](https://user-images.githubusercontent.com/56103491/149508443-0a39b148-fb05-49af-8f71-25ad1223a556.jpg)
+
 
 
 Для пользователей ПК win+tab - открытие вертуалтных рабочих столов
